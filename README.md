@@ -1,1 +1,0 @@
-# ap3-p27-duroyon-senez
